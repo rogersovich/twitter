@@ -1,0 +1,1 @@
+ini folder untuk hasil videonya
